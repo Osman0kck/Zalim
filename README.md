@@ -1,0 +1,2 @@
+# Zalim
+Mavi tik
